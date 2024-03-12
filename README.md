@@ -1,0 +1,2 @@
+# stronsodimerda
+trabajo grupal
